@@ -1,6 +1,2 @@
 
-
-fuck
-=======
-shit
-
+read
